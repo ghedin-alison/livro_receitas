@@ -1,4 +1,4 @@
-# Strogonoff de Palmito :chicken: :pig: :cow:
+# Strogonoff de Palmito :chicken: :pig: :cow: :baby: :woman_cook:
 
 ### Ingredientes
  - 300g de palmito
